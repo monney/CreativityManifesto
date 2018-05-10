@@ -1,0 +1,2 @@
+# CreativityManifesto
+My Creativity Manifesto
